@@ -224,4 +224,4 @@ Kingdom is offered as a complete free version with all features and updates incl
 Start your streaming adventure today with Kingdom! Download now and unlock a world of entertainment at your fingertips!
 
 ---
-**Last updated:** 2026-10-08 15:16:53 UTC
+**Last updated:** 2026-10-08 21:04:39 UTC
